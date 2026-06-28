@@ -1,4 +1,4 @@
-# 
+# Premium Adobe Premiere Pro tools for Mac OS | Ultimate Adobe Premiere Pro tools for PC Windows. Featuring video-stabilization and plugin-support — optimized for maximum performance on every platform.
 
 
 
